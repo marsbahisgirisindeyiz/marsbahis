@@ -1,1 +1,1 @@
-MARSBAHİS GÜNCEL GİRİŞ İÇİN TIKLA bhfair.xyz/ats50
+MARSBAHİS GÜNCEL GİRİŞ İÇİN TIKLA www.bhfair.xyz/ats50
